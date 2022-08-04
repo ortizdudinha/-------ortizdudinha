@@ -1,1 +1,10 @@
-*ortizdudinha15anos*estudonocolegiojoaodemattospessoa*
+**maria**
+*eduarda*
+~~ortis~~
+**da__fonseca__quinze**
+<anos>
+<sup>deidade<sup>
+:smiling_face_with_three_hearts:
+:heart_eyes:
+:grinning:
+:smiley:
